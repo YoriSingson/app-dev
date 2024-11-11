@@ -15,6 +15,6 @@
 
 ## Memorable Quotes
 
-> "The world is not just the way it is. It is how we understand it." — Pi Patel
+> "The world is not just the way it is. It is how we understand it." — Pi Patel 
 > 
 > "I suppose in the end, the whole of life becomes an act of letting go, but what always hurts the most is not taking a moment to say goodbye." — Pi Patel
